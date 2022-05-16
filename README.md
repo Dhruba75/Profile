@@ -1,1 +1,1 @@
-https://dhruba75.github.io/Profile/
+http://dhruba75.github.io/Profile/
